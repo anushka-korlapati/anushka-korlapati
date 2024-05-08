@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi ! I like to code and design
+Hi ! I code and design
 
 
 ## 🌐 Socials:
